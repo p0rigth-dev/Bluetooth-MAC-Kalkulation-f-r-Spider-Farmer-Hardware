@@ -1,0 +1,1 @@
+# Bluetooth-MAC-Kalkulation-f-r-Spider-Farmer-Hardware
